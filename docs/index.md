@@ -40,11 +40,11 @@ __One Click Services__, Draper, UT
 
 ## Service and Work History
 
-`2019-202`
+`2019-202` #(Missing final date on this one!)
 __Senior Sales Pro__, Vivint Smart Home
 
 
-`2023-2025`
+`2023-2025` #(Change the Years for your mission, unless your time traveled...)
 __Service Missionary__, Porto Alegre North Mission, Brazil
 
 
